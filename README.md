@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @bettysally3337
 - 👀 I’m interested in reading, photography
-- 🌱 I’m currently learning <如何改變一個人>
+- 🌱 I’m currently learning <Emma> by Jane Austen
 - 📫 How to reach me : email me
 - I love :dancer:, :book:, :microphone:
 <!---
